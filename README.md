@@ -1,3 +1,3 @@
 # 订阅转换-点击下方链接
 
-[hzxyx-hub.github.io](https://hzxyx-hub.github.io/)
+[2524068379.github.io](https://2524068379.github.io/)
